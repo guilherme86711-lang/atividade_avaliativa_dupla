@@ -1,2 +1,2 @@
-# atividade_em_dupla
+# atividade_avaliativa_dupla
 1- Guilherme Barbosa
